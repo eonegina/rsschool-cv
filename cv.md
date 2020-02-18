@@ -1,5 +1,0 @@
-# rsschool-cv
-*Ekaterina Onegina*
-Contacts: ekaterinaonegina@yandex.ru / telegram: onegina_ekaterina
-Education: Higher School of Economics, management
-English: upper-intermediate
